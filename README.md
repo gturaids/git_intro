@@ -1,1 +1,1 @@
-Gunars Turaids
+Gunars Turaidsturaidsg@oregonstate.edu
